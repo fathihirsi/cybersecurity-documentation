@@ -329,5 +329,6 @@ Sydney, Australia
 Cybersecurity | Security Operations | Blue Team | Cyber Risk
 
 [LinkedIn](#)
+ 
+[Email](#) fathihirsi021@gmail.com
 
-[Email](#)
